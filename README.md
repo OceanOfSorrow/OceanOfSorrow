@@ -1,1 +1,1 @@
-<p align="center"><img width="690" height="565" alt="Screenshot 2026-07-18 015312__fliter--cherry-icecream__channel--all__mode--hue (1)" src="https://github.com/user-attachments/assets/d852e426-9e5d-476a-8526-55fead933887" />
+<p align="center"><img width="510" height="388" alt="Screenshot 2026-07-18 015312__fliter--cherry-icecream__channel--all__mode--hue (1)" src="https://github.com/user-attachments/assets/d852e426-9e5d-476a-8526-55fead933887" />
